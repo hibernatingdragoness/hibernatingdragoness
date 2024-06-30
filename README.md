@@ -24,7 +24,7 @@
 
 <p align="center"
 
-sign gb or something ^_^
+[rentry](https://rentry.co/athousandwavesunderthemoon)　[atabook](https://phrayanaga.atabook.org/)　[daily click](https://arab.org/click-to-help/palestine/)
 
 </p>
 
