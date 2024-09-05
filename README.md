@@ -1,35 +1,33 @@
 <p align="center"
 
-![](https://64.media.tumblr.com/cabe2e67076a1395e6dc72a4d5b9c82d/5608c1ce863f9968-f4/s250x400/7769e2b6b02f7576cd628ddf762d31f665323f7f.gifv)
+![](https://64.media.tumblr.com/c52fb21999ef0c4c9b8be3c104904af0/156f5c3ed4c7e9bb-73/s1280x1920/e925343861d98c0146cbf720219948ff5877ea78.pnj)
 
 </p>
 
 <p align="center"
 
-![](https://pixels.crd.co/assets/images/gallery28/9fe0b14a.gif?v=87a16b78)
+![](https://64.media.tumblr.com/98582d066860d0fd657575c5020090c3/6d6a639539246533-31/s640x960/0549bb6ab3ecb4530433d92f6bbd805b604924b0.pnj)
 
 </p>
 
 <p align="center"
 
-![](https://i.pinimg.com/564x/be/d4/e8/bed4e875342fdea30d9a3b38e6ddaf06.jpg)
+![](https://64.media.tumblr.com/386c5103e51571f5a459b0fc3bf0ad08/95ad12fd9e0aa6ea-c5/s75x75_c1/576d6abdebc643795fac58059892962c1693b418.gifv) 𝐭ᴇ𝗹𝗹 𝓂𝖾 ɦ𝐨ω gᴏᴏ∂ 𝚒ᴛ ƒ𝚎𝚎ʟ𝓈 𝐭𝓸 ʙᥱ ηᴇᴇძℯ𝒅 ![](https://64.media.tumblr.com/71563dc0fb97177cc819629132a94946/7c077bef8cc98d79-e9/s75x75_c1/f8e3ad90418891ba055844c3005e9fbffbb9993a.gifv)
 
 </p>
 
 <p align="center"
 
-𝐡𝐨𝐰 𝐝𝐨 𝐢 𝐦𝐚𝐤𝐞 𝐭𝐡𝐞 𝐩𝐡𝐨𝐧𝐞 𝐫𝐢𝐧𝐠?
+![](https://64.media.tumblr.com/c62a0b97327d2ecaea88bea1ffc0294d/9294095bd274d868-71/s640x960/9f194dd7cc34e69a9b108ae7920ae66434b1c3d5.pnj)
 
 </p>
 
 <p align="center"
 
-[rentry](https://rentry.co/athousandwavesunderthemoon)　[atabook](https://phrayanaga.atabook.org/)　[daily click](https://arab.org/click-to-help/palestine/)
+ERA5 | 𝗍ɦα𐓣𝗄 υ, 𐓣𝖾𝗑𝗍
 
 </p>
 
 <p align="center"
 
-![](https://64.media.tumblr.com/c87b78839963bc4ea3cfd71e6af031f6/55e3046c34c38e44-9f/s400x600/b2d780a240d18c60dd11c8bb0c561ee4f83c5fe6.gifv)
-
-</p>
+wip lol haha but heres my [rentry](https://rentry.co/athousandwavesunderthemoon)
